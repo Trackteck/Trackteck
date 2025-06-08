@@ -47,7 +47,7 @@ TrackTeck is your ultimate destination for the latest mobile phone reviews, tech
 
 Have feedback or want to collaborate?
 
-📧 Email: `contact@trackteck.com`
+📧 Email: `sam981099@gmail.com`
 
 ---
 
